@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mhjl22
-- 👀 I’m interested in engineering, biology, chemistry, and medicine
+- 👀 I’m interested in engineering, biology, chemistry, medicine, and programming.
 - 🌱 I’m currently learning a little of everything and then some
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: my email
